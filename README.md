@@ -1,10 +1,8 @@
-- 👋 Hi, I’m @RolandStone
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+@RolandStone
+# RolandStoner
 
-<!---
-RolandStone/RolandStone is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+I have no fucking idea what I am doing...
+
+~RolandStoner
+
+¯\_(ツ)_/¯
