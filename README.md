@@ -9,7 +9,7 @@
 .| $$      | $$  | $$| $$  /$$__/   /$$  \ $$| $$_____/| $$      
 .| $$$$$$$$|  $$$$$$/| $$ /$$$$$$$$|  $$$$$$/|  $$$$$$$|  $$$$$$.$
 .|________/ \______/ |__/|________/ \______/  \_______/ \_______/
-                          //Laughing at your security since 2011!
+                          //Laughing at your security since 1999!
                          //#HackThePlanet <- IRC  @ cornelius.scuttled.net
  
 .--    .-""-.
