@@ -10,7 +10,7 @@
 .| $$$$$$$$|  $$$$$$/| $$ /$$$$$$$$|  $$$$$$/|  $$$$$$$|  $$$$$$.$
 .|________/ \______/ |__/|________/ \______/  \_______/ \_______/
                           //Laughing at your security since 2011!
-                         //#LulzSecReborn <- IRC Chan @ irc.anonops.com
+                         //#HackThePlanet <- IRC  @ cornelius.scuttled.net
  
 .--    .-""-.
 .   ) (     )
