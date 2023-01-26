@@ -63,5 +63,4 @@
  
 
 ~RolandStoner
-
-¯\_(ツ)_/¯¯\_(ツ)_/¯¯\_(ツ)_/¯¯\_(ツ)_/¯¯\_(ツ)_/¯¯\_(ツ)_/¯¯\_(ツ)_/¯¯\_(ツ)_/¯
+![nonames](https://user-images.githubusercontent.com/1758914/214786559-11078616-a57f-42f2-a6e3-246d7e7deb6b.gif)
