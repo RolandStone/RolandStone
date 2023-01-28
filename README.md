@@ -1,5 +1,6 @@
 
 ¯\_(ツ)_/¯¯\_(ツ)_/¯¯\_(ツ)_/¯¯\_(ツ)_/¯¯\_(ツ)_/¯¯\_(ツ)_/¯¯\_(ツ)_/¯¯\_(ツ)_/¯
+Lulz is what separates us from the noobs who can't hack into secure government networks.
 ☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮
 . /$$                 /$$            /$$$$$$                    
 .| $$                | $$           /$$__  $$                    
