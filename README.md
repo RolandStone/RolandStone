@@ -20,6 +20,7 @@ Lulz is what separates us from the noobs who can't hack into secure government n
 ¯\_(ツ)_/¯¯\_(ツ)_/¯¯\_(ツ)_/¯¯\_(ツ)_/¯¯\_(ツ)_/¯¯\_(ツ)_/¯¯\_(ツ░░░░░░░░░░█▀██▀▀▀▀░█▄░░░░░░░░░░░░░|
 ☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮☮░░░░░░░░░░░░▀░░░░░░░░░░░▀░░░░░░░░░|
 ![nonames](https://user-images.githubusercontent.com/1758914/214786559-11078616-a57f-42f2-a6e3-246d7e7deb6b.gif)
+
 .--    .-""-.
 .   ) (     )
 .  (   )   (
@@ -45,6 +46,4 @@ Lulz is what separates us from the noobs who can't hack into secure government n
 .            `-.__..-' =====\\\\\\ V/  .---\.
 .                     ~~~~~~~~~~~~, _',--/_.\  .-""-.
 .                            .-""-.___` --  \|         -.__..- The lulz is always and forever, amen.  
-                                                             The
-                                                            Lulz as an idea can't be killed.
 ¯\_(ツ)_/¯¯\_(ツ)_/¯¯\_(ツ)_/¯¯\_(ツ)_/¯¯\_(ツ)_/¯¯\_(ツ)_/¯¯\_(ツ)_/¯¯\_(ツ)_/¯¯\_(ツ)_/¯¯\_(ツ)_/¯
