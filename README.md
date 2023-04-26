@@ -9,8 +9,10 @@ Lulz is what separates us from the toxic
 .| $$$$$$$$|  $$$$$$/| $$ /$$$$$$$$|  $$$$$$/|  $$$$$$$|  $$$$$$.$
 .|________/ \______/ |__/|________/ \______/  \_______/ \_______/
 >
-//Laughing at your security since 1999!▀▀
-//#HackThePlanet <- IRC @ cornelius.scuttled.net
+***//☮Laughing at your security since 1999!☮***
+
+***~//#HackThePlanet <- IRC @ cornelius.scuttled.net~***
+
 ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ 
 >
 ░░░▄▄██████████░░░░░░░░░░░░░░░░░░░| 
