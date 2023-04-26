@@ -1,5 +1,5 @@
 ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ 
-Lulz is what separates us from the toxic
+<sup>If you're not hacking for the lulz, you're not really hacking at all.</sup>
 >. /$$                 /$$            /$$$$$$
 .| $$                | $$           /$$__  $$
 .| $$       /$$   /$$| $$ /$$$$$$$$| $$  \__/  /$$$$$$   /$$$$$$$
