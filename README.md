@@ -1,6 +1,6 @@
 ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ 
 
-./<sup>If you're not hacking for the lulz, you're not really hacking at all.</sup>
+⩜⩜⃝ <sup>If you're not hacking for the lulz, you're not really hacking at all.</sup>⩜⩜⃝ 
 
 . /$$                 /$$            /$$$$$$
 .| $$                | $$           /$$__  $$
