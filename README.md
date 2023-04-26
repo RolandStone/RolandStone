@@ -12,7 +12,7 @@ Lulz is what separates us from the toxic
 //Laughing at your security since 1999!▀▀
 //#HackThePlanet <- IRC @ cornelius.scuttled.net
 ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ 
-`
+>
 ░░░▄▄██████████░░░░░░░░░░░░░░░░░░░| 
 ░███████████████░░░░░░░░░░░░░░░░░░|
 ░▀███████████████░░░░░▄▄▄░░░░░░░░░|
@@ -31,7 +31,7 @@ Lulz is what separates us from the toxic
 ░░░░░░░░░░█░█▄░░▀█▄▄▄░░█░░░░░░░░░░|
 ░░░░░░░░░░█▀██▀▀▀▀░█▄░░░░░░░░░░░░░|
 ░░░░░░░░░░░░▀░░░░░░░░░░░▀░░░░░░░░░|
-`
+>
 ![nonames](https://user-images.githubusercontent.com/1758914/214786559-11078616-a57f-42f2-a6e3-246d7e7deb6b.gif)
 
 
