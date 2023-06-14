@@ -1,6 +1,12 @@
 ![RolandStone's Stats](https://github-readme-stats.vercel.app/api?username=RolandStone&theme=dark&show_icons=true&hide_border=false&count_private=true)
 ![RolandStone's Streak](https://github-readme-streak-stats.herokuapp.com/?user=RolandStone&theme=dark&hide_border=false)
+- 🔭 I’m currently working on Auto-GPT
+- 🌱 I’m currently learning more about AI
 
+<p align="center"> 
+  Visitor count<br>
+  <img src="https://profile-counter.glitch.me/RolandStoner/count.svg" />
+</p>
 
 
 ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ 
