@@ -1,5 +1,4 @@
-![RolandStone's Stats](https://github-readme-stats.vercel.app/api?username=RolandStone&theme=dark&show_icons=true&hide_border=false&count_private=true)
-![RolandStone's Streak](https://github-readme-streak-stats.herokuapp.com/?user=RolandStone&theme=dark&hide_border=false)
+![RolandStone's Stats](https://github-readme-stats.vercel.app/api?username=RolandStone&theme=dark&show_icons=true&hide_border=false&count_private=true) ![RolandStone's Streak](https://github-readme-streak-stats.herokuapp.com/?user=RolandStone&theme=dark&hide_border=false)
 - 🔭 I’m currently working on Auto-GPT
 - 🌱 I’m currently learning more about AI
 
