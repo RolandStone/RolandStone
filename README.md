@@ -1,3 +1,9 @@
+![RolandStone's Stats](https://github-readme-stats.vercel.app/api?username=RolandStone&theme=dark&show_icons=true&hide_border=false&count_private=true)
+![RolandStone's Streak](https://github-readme-streak-stats.herokuapp.com/?user=RolandStone&theme=dark&hide_border=false)
+![RolandStone's Top Languages](https://github-readme-stats.vercel.app/api/top-langs/?username=RolandStone&theme=dark&show_icons=true&hide_border=false&layout=compact)
+
+
+
 ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ 
 ⩜⩜⃝ <sup>If you're not hacking for the lulz, you're not really hacking at all.</sup>⩜⩜⃝ 
 ```
