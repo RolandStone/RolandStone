@@ -5,7 +5,7 @@
   Visitor count<br>
   <img src="https://profile-counter.glitch.me/RolandStoner/count.svg" />
 </p>
-we're learning, growing, and making something awesome. So here's to more coding, more learning, and more LuLz! 🥂
+So here's to more coding, more learning, and more LuLz! 🥂
 
 ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ ¯\_(ツ)_/¯ 
 ⩜⩜⃝ <sup>If you're not hacking for the lulz, you're not really hacking at all.</sup>⩜⩜⃝ 
