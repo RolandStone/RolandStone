@@ -1,5 +1,5 @@
 ![RolandStone's Stats](https://github-readme-stats.vercel.app/api?username=RolandStone&theme=dark&show_icons=true&hide_border=false&count_private=true) ![RolandStone's Streak](https://github-readme-streak-stats.herokuapp.com/?user=RolandStone&theme=dark&hide_border=false)
-- Evolving 🤖
+- 
 
 <p align="center"> 
   Visitor count<br>
